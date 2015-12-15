@@ -1,3 +1,3 @@
 # rmchallenge
 
-[CV link](https://careers.stackoverflow.com/cv/edit/194472)
+[CV link](https://careers.stackoverflow.com/sergeybalanin)
